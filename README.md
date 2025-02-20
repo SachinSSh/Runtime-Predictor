@@ -6,3 +6,4 @@ weak subtle
 
 u have to predict damn
 nk
+jbk

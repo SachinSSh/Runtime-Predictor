@@ -8,3 +8,4 @@ u have to predict damn
 nk
 jbk
 scasc
+dvsv

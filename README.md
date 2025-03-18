@@ -34,6 +34,12 @@ scasc
 dvsv
 sca
 cce
+nk
+jbk
+scasc
+dvsv
+sca
+cce
 cce
 
 nk

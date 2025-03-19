@@ -12,29 +12,6 @@ dvsv
 sca
 cce
 
-u have to predict damn
-nk
-jbk
-scasc
-dvsv
-sca
-cce
-
-nk
-jbk
-scasc
-dvsv
-sca
-cce
-
-u have to predict damn
-nk
-jbk
-scasc
-dvsv
-sca
-cce
-nk
 jbk
 scasc
 dvsv
